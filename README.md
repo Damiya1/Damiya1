@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Damiya1
+- 👀 I’m interested in lot ogf things
+- 🌱 I’m currently learning Java
+- 📫 How to reach me damithdil20@gmail.com
